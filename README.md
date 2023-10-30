@@ -2,6 +2,8 @@
 
 Video demonstration: https://drive.google.com/file/d/1FjgK1-5T4cwxH9EBBvClACf4SZU9D0WE/view?usp=drive_link
 
+Blog link: https://4texnewarivals.blogspot.com/2023/10/new-arrivals.html
+
 L.Gethsia Judin-A5B39C812E884AC8DB34914257E6DAFE
 1. https://caitlyngarments.blogspot.com/2023/08/new-arrivals.html
 2. https://m.facebook.com/profile.php/?id=61550263390762
